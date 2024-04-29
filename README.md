@@ -1,0 +1,1 @@
+![Screenshot_130.png](..%2F..%2FDocuments%2FLightshot%2FScreenshot_130.png)
